@@ -10,7 +10,8 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="![akaza](https://github.com/user-attachments/assets/5458fefd-a9a3-4d18-b0f0-2cee27e032f4)
+"  />
 
 ###
 
